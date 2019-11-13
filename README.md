@@ -1,2 +1,1 @@
-# MSH
-KOREAN dev 
+NOOB _ _ _ _ _ MSH
